@@ -1,2 +1,0 @@
-# programming-student
-N/A
